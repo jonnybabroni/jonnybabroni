@@ -4,7 +4,6 @@
 
 
 
-<p align="center"> <img src="https://i.postimg.cc/FFGznTL8/In-Shot-20260907-022945053.png" width="100">
 
  account for pt even tho i barely play that game✌🏻😂
 
